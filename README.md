@@ -10,4 +10,4 @@
 4. **Metro Man:** the original hero in the story who staged his death to escape societal pressure
 5. **Hal Stewart/Tighten/Titan:** the actual villain who turns destructive out of jealousy and entitlement
 
-> "Destiny is not the path that is given to us, but the path we choose for ourselves." — Megamind 
+> "Destiny is not the path that is given to us, but the path we choose for ourselves." — Megamind
